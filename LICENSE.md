@@ -1,4 +1,4 @@
-#  
+#  berry avenue rp Scripts vip is the best berry avenue rp Script, featuring auto-collect and anti-ban. Safe and powerful for all your needs.
 
 
 
